@@ -1,5 +1,5 @@
 - Hi, I’m @zGamingTechz
-- I’m mostly interested in Game Development, Cyber Security and Artificial Intelligence!
+- I’m mostly interested in Game Development and Artificial Intelligence!
 - I’m currently learning AI & ML
 - I’m looking to collaborate on a game or anything really
 - Contact Me Here:
